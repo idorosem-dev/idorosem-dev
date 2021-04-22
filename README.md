@@ -1,0 +1,4 @@
+- 👋 hi! my name is ido
+- 📱 app owner/develepor
+- 📖 java script, python, html, css.
+- 🟦⬜ jew
